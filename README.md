@@ -1,5 +1,5 @@
 -Henlo lads, Im @TheAllSeeingCommando
--Im a programmer (dont offer me a job, im only 12)
+-Im a programmer (dont offer me a job, im only 12 [lol] )
 -I like memes =]
 
 yup thats all
